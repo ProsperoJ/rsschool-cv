@@ -1,1 +1,1 @@
-https://ProsperoJ.github.io/rsschool-cv/cv
+https://ProsperoJ.github.io/rsschool-cv/
